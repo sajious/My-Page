@@ -1,4 +1,4 @@
-# I'm Sajed Yousefi Mashhour 👋
+# Sajed Yousefi Mashhour
 
 ### 🌟 **Lifelong Learner | IT Enthusiast | Cybersecurity & Web Development**
 
